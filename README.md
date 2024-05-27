@@ -1,4 +1,5 @@
 #This project will always be a work in progress.
+
 As I continue in my career as a navigator, I'm going to learn new tricks and meet some wise old people.
 I expect that when I learn more about the Celestial Navigation which is so dear to me, I will write more about it here.
 I also am active in a Facebook group where I'm learning new concepts from people with a very deep mastery of the subject.
